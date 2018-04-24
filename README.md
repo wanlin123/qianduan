@@ -1,2 +1,0 @@
-# qianduan
-qianduanstudy
